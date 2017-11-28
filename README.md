@@ -1,2 +1,0 @@
-# luciaberger.com
-Personal Website 
